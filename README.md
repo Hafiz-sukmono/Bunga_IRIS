@@ -6,6 +6,3 @@ Bunga ini termasuk dalam famili Iridaceae yang memiliki warna beragam dan mencol
 Artikel ini telah tayang di Kompas.com dengan judul "Mengenal Asal Usul dan Arti Bunga Iris Berdasarkan Warnanya", Klik untuk baca: https://www.kompas.com/homey/read/2022/10/30/073000476/mengenal-asal-usul-dan-arti-bunga-iris-berdasarkan-warnanya?page=all.
 Penulis : Esra Dopita Maret
 Editor : Esra Dopita Maret
-
-Kompascom+ baca berita tanpa iklan: https://kmp.im/plus6
-Download aplikasi: https://kmp.im/app6
